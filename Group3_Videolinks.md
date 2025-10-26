@@ -7,7 +7,7 @@ Here are the YouTube presentation links for each group member:
 - Jacelin Gomez – [YouTube Link]()
 - Ahsan Khan – [YouTube Link]()
 - Hali Ding – [YouTube Link]()
-- Bikash Shrestha – [YouTube Link]()
+- Bikash Shrestha – [YouTube Link](https://www.youtube.com/watch?v=k6mkXssP5LM)
 - Fakriha Kamal – [YouTube Link]()
 - Dominik Kasza – [YouTube Link]()
 
