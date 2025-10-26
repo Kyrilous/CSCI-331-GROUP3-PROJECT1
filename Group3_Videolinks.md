@@ -4,7 +4,7 @@ Here are the YouTube presentation links for each group member:
 
 ### Video Submissions
 - Kyrilous Nasr – [YouTube Link](https://youtu.be/A6EspSnEXnU)
-- Jacelin Gomez – [YouTube Link]()
+- Jacelin Gomez – [YouTube Link](https://youtu.be/K6GRYXpN14w)
 - Ahsan Khan – [YouTube Link]()
 - Hali Ding – [YouTube Link]()
 - Bikash Shrestha – [YouTube Link](https://www.youtube.com/watch?v=k6mkXssP5LM)
