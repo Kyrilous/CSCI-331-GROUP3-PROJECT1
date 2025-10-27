@@ -6,7 +6,7 @@ Here are the YouTube presentation links for each group member:
 - Kyrilous Nasr – [YouTube Link](https://youtu.be/A6EspSnEXnU)
 - Jacelin Gomez – [YouTube Link](https://youtu.be/K6GRYXpN14w)
 - Ahsan Khan – [YouTube Link]()
-- Hali Ding – [YouTube Link]()
+- Hali Ding – [YouTube Link](https://youtu.be/pi5Ygn9sJ38?si=Zb4TOZhO_gSiSwMs)
 - Bikash Shrestha – [YouTube Link](https://www.youtube.com/watch?v=k6mkXssP5LM)
 - Fakriha Kamal – [YouTube Link](https://www.youtube.com/watch?v=bpV0Q5PPHuA)
 - Dominik Kasza – [YouTube Link](https://youtu.be/HB3tUGsJ0Ek)
