@@ -8,7 +8,7 @@ Here are the YouTube presentation links for each group member:
 - Ahsan Khan – [YouTube Link]()
 - Hali Ding – [YouTube Link]()
 - Bikash Shrestha – [YouTube Link](https://www.youtube.com/watch?v=k6mkXssP5LM)
-- Fakriha Kamal – [YouTube Link]()
+- Fakriha Kamal – [YouTube Link](https://www.youtube.com/watch?v=bpV0Q5PPHuA)
 - Dominik Kasza – [YouTube Link]()
 
 ### Link To Gantt Chart
